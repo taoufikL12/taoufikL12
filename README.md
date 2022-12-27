@@ -1,4 +1,4 @@
-![Hola Me llamo Taoufik (1)](https://user-images.githubusercontent.com/104829600/209666990-af789ca1-4df8-4f1e-bec0-d5242995c6f8.png)
+![Hola Me llamo Taoufik (2)](https://user-images.githubusercontent.com/104829600/209667267-b92790dd-44a5-4b08-b7a0-e333c26aad24.png)
 
 Herramientas y lenguajes con las que trabajo
 
